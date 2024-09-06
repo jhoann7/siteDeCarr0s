@@ -1,4 +1,4 @@
-## **## Sua Garagem Virtual: Encontre o Carro dos Seus Sonhos!**
+## **Sua Garagem Virtual: Encontre o Carro dos Seus Sonhos!**
 
 **O que ela faz?**
 
